@@ -1,5 +1,5 @@
 ##### 💫 About Me:
-🔭 I’m currently being Lecture on Esa Unggul University
+🔭 I’m currently being Lecturer on Esa Unggul University
 
 
 ##### 🌐 Socials:
